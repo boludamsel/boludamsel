@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @boludamsel
+- 👀 I’m interested in software development and product management
+- 💞️ I’m looking to collaborate on trends in software development and product management
+- 📫 How to reach me damsycal@gmail.com
